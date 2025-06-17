@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **manansinghal028@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/128RtSdK8czlEdlPf_4kCaYaZ1lc5zq2t/view?usp=sharing](https://drive.google.com/file/d/128RtSdK8czlEdlPf_4kCaYaZ1lc5zq2t/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1pxe9Fl4IyX6KWd6Vi9chNUR4AQfX-lDN/view?usp=sharing](https://drive.google.com/file/d/1pxe9Fl4IyX6KWd6Vi9chNUR4AQfX-lDN/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
